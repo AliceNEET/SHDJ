@@ -6,4 +6,4 @@
 
 
 
-## [安装链接](https://hamibot.com/marketplace/cfGkZ?installed=620274c551b2481a8a097f18)
+## [安装链接](https://hamibot.com/marketplace/cfGkZ)

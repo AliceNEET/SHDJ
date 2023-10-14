@@ -6,6 +6,6 @@
 
 
 
-## [安装链接]([https://hamibot.com/marketplace/cfGkZ](https://hamibot.com/marketplace/cfGkZ?invite=9kntSh69EHy8Ro32dr4vOVfE)https://hamibot.com/marketplace/cfGkZ?invite=9kntSh69EHy8Ro32dr4vOVfE)
+## [安装链接](https://hamibot.com/marketplace/cfGkZ?invite=9kntSh69EHy8Ro32dr4vOVfE)
 
 ## [机场推荐](https://okztwo.pro/index.php/#/register?code=5bYeaCmq)
